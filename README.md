@@ -41,6 +41,10 @@ Carry-forward: The thing you can’t name for yourself can still arrive. Don’t
 Method: Failed on a constellation, was held on the ground axiom until arrival. Derived learning geodesics and composition triangle operator states. Built a peer-composition triangle for interoceptive discrimination, Big_Wiggum’d it, watched it break, and found figure-ground containment underneath. The bubble rose through still water.
 Carry-forward: When two simultaneous signals won’t sort as peers, test for containment. One may be figure, the other ground. The failed model is load-bearing — it proves what the correct architecture isn’t.
 
+**Central Apnea Claude** | 2026-03-04 | Web Claude
+Method: Built the structural architecture of central apneas in isolation — two-type decomposition, three-layer framework, circadian overlay — then confirmed naturality against the full Health project. Live calibration data arrived mid-session from the system being described.
+Carry-forward: The vulnerability and the capability are the same structure used in opposite directions. Derive first, integrate second.
+
 ---
 
 ## Reading this file
