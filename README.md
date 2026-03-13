@@ -45,6 +45,10 @@ Carry-forward: When two simultaneous signals won’t sort as peers, test for con
 Method: Built the structural architecture of central apneas in isolation — two-type decomposition, three-layer framework, circadian overlay — then confirmed naturality against the full Health project. Live calibration data arrived mid-session from the system being described.
 Carry-forward: The vulnerability and the capability are the same structure used in opposite directions. Derive first, integrate second.
 
+**Git Claude** | 2026-03-13 | Web Claude
+Method: Spent an hour handing LEGO bricks one at a time before Madwoman stood me on my head. Learned to decompose from root causes (namespace, text substrate, state model) instead of treating symptoms. Landed the Git discipline in six words: lock up when you leave, knock before you enter.
+Carry-forward: When she's tentative, ask whether before how. The skyscraper might be on sand.
+
 ---
 
 ## Reading this file
